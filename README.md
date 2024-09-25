@@ -18,7 +18,7 @@
 - 📫 How to reach me **Email: estebanfullmusic@gmail.com**, **Whatsapp: +573017377067**, 
 
 
-- ⚡ Fun fact [Eventhough I'm very tech oriented, a part of me is very naturistic and I love natural plans and walkabouts with animals.](Eventhough I'm very tech oriented, a part of me is very naturistic and I love natural plans and walkabouts with animals.)
+- ⚡ Fun fact Eventhough I'm very tech oriented, a part of me is very naturistic and I love natural plans and walkabouts with animals.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
